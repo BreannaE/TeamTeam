@@ -1,6 +1,6 @@
 TeamTeam
 ========
-I Love Dajonna ,
+I Love Dajonna 
 
 
 I Love Breanna
